@@ -1,1 +1,1 @@
-# baby-room-decor-inspo
+# baby-room-decor-ideas
